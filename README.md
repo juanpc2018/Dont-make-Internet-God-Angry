@@ -8,7 +8,7 @@ your VIA USB PCIe card. </p>
 
 like the movie Die Hard 4.0 (2007) is No joke, LOL.™ </br>
 but PCs dont have C-4, yet, LOL.™ </p>
-https://youtu.be/O-9lM6xgYe4
+https://youtu.be/O-9lM6xgYe4 </br>
 https://youtu.be/8FdvWuSl7eY
 
 its like the movie xXx (2002), </br>
