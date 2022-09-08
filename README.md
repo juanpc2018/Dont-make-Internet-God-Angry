@@ -7,7 +7,7 @@ and send you tons of fake updates that will kill your OS. </br>
 your VIA USB PCIe card. </p> 
 
 like the movie Die Hard 4.0 (2007) is No joke, LOL.™ </br>
-but PCs dont have C-4 inside, yet, LOL.™ </p>
+but PCs dont have C-4, yet, LOL.™ </p>
 https://youtu.be/O-9lM6xgYe4
 
 its like the movie xXx (2002), </br>
